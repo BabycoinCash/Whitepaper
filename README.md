@@ -1,2 +1,1 @@
-# Whitepaper
-Babycoin (Babycoin)
+Babycoin is a cryptocurrency, Babycoin is a very unique memecoin.
