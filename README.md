@@ -1,0 +1,2 @@
+# Whitepaper
+Babycoin (BBC)
